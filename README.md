@@ -1,1 +1,0 @@
-# lexicon_uppg1
